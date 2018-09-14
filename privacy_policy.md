@@ -1,0 +1,1 @@
+Fitbitcoin Privacy Policy
